@@ -31,14 +31,14 @@
                                                      
                                                            📧 Email : sahiljangid811@gmail.com 📧
                                              
-                                                             🤙 Phone number : +91 8619998255 🤙
+                                                          
                                              
                                              
                                              
                                              
                                                                         Follow me on
 
-                                                                Facebook: sahiljangir8619
+                                                                Facebook: sahiljangid8619
                                                  
                                                                 Twitter: sahiljangid8619
                                                   
